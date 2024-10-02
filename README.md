@@ -1,1 +1,1 @@
- http://onepiecefav.character/index.html
+https://nenenss9.github.io/OnePieceFav.Character/
