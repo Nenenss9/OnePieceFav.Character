@@ -1,1 +1,1 @@
-https://github.com/Nenenss9/oNEPieceFav.Characters/
+https://nenenss9.github.io/oNEPieceFav.Characters/
